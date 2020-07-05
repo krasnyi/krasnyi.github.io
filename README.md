@@ -1,0 +1,1 @@
+# krasnyi.github.io
